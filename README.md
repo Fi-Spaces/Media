@@ -1,8 +1,4 @@
-Eksik Uzay Yasaları ve Bilim Felsefesine Eleştiriler
-PRO
-Sohbet
-Bugün • 02:13
-Discuss Eksik uzay yasaları.
+
 
 Uzay yasalarının eksik veya yanlış olma ihtimali, bilim felsefesinin merkezinde yatan bir olasılıktır. Bilim, mutlak gerçeği değil, yalnızca mevcut en iyi açıklamayı sunar. Bu bağlamda, mevcut yasalarımızın "eksik uzay yasaları" olarak değerlendirilmesinin temel nedenleri ve örnekleri şunlardır:
 Tarihsel Örnekler ve Mevcut Eksiklikler
